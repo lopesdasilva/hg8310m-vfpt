@@ -1,5 +1,5 @@
 # hg8310m-vfpt
-
+https://pt.aliexpress.com/item/32976208543.html?spm=a2g0s.9042311.0.0.1997b90aiszjhp
 
 telecomadmin/admintelecom
 
